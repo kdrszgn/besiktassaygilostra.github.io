@@ -1,1 +1,0 @@
-# besiktassaygilostra.github.io
